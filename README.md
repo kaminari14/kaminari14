@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @kaminari14
 - 👀 I’m interested in Cyber Security, Skateboarding and playing Tetris.
-- 📫 How to reach me - https://www.linkedin.com/in/farhan-thakur-4a3244148/
+- 📫 How to reach me - https://www.linkedin.com/in/farhanthakur/
